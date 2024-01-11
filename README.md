@@ -1,1 +1,1 @@
-Bereshit bara Elohim et hashamayim ve'et ha'aretz.
+**Bereshit bara Elohim et hashamayim ve'et ha'aretz.**
